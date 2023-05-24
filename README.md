@@ -1,0 +1,4 @@
+-  Hi, I’m @AntFarmer2 (He/Him)
+-  I’m interested in Parsers, TTRPGs, Cars, Mechanics, Physics/Chem, Calisthenics, ect. 
+-  I’m currently learning the basics.
+-  How to reach me ... Don't. I'm not much help. 
